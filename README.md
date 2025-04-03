@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **haririshi2004@gmail.com**
 
-- 📄 Know about my experiences [Click here for Resume]([https://drive.google.com/file/d/1vav2KflWnPX5NUB8l67rRZU_uhywdONN/view?usp=sharing](https://drive.google.com/drive/folders/1ej9lCu6aoQkffImOOieQrunJ3t7Hz1tg))
+- 📄 Know about my experiences [https://drive.google.com/drive/folders/1ej9lCu6aoQkffImOOieQrunJ3t7Hz1tg]([https://drive.google.com/file/d/1vav2KflWnPX5NUB8l67rRZU_uhywdONN/view?usp=sharing](https://drive.google.com/drive/folders/1ej9lCu6aoQkffImOOieQrunJ3t7Hz1tg))
 
 - ⚡ Fun fact **I have good sense of humor**
 
